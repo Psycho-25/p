@@ -1,1 +1,1 @@
-This is just a prctice
+This is just a practice
